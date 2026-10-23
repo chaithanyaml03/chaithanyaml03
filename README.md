@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi,I'm Chaithanya
 🌱 Engineering student | Learning new technologies<br>💻 Interested in coding and technology<br>🚀 Building projects and learning every day
 
 
